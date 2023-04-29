@@ -8,6 +8,6 @@ I'm
 
 ***a insane 🐶 person***
 
-***Master of Failure Administration***
+***Master of Failure Administration🤡***
 
 ***always trying to do better🦾!***
