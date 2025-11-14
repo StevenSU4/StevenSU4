@@ -2,7 +2,8 @@
 
 I'm **Yihang SU**, or you can also call me **Steven**.
 
-I'm currnetly studying in the **CUHK** as a **Computer Science** student.
+I'm currnetly studying in the **CUHK** as a **PhD** student in **Information Engineering**.
+Formerly, I was a **Computer Science** student of **CUHK**.
 
 I'm
 
